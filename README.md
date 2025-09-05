@@ -1,2 +1,1 @@
-# goodbyehome
-𝜗ৎ gifted &amp; made by @Metadow on github!
+bleh gonna do ts soon!
