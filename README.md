@@ -2,7 +2,7 @@
 
 
   
-![](https://komarev.com/ghpvc/?username=goodbyehome&color=d9851e&abbreviated=true&style=flat-square&label=+money+stolen+370,000)
+![](https://komarev.com/ghpvc/?username=goodbyehome&color=d9851e&abbreviated=true&style=flat-square&label=+money+stolen)
 
   ︵︵︵
   
