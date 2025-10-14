@@ -11,7 +11,7 @@
   ‿‿‿
   
 ### <p align="center">   ⤷ ⠀⠀  *wren 𓂃 rena*  ⠀੭ </p>
-<p align="center">  ◠◠  ⠀⠀⠀⠀ 4teen  ⠀⠀     ꒰ any pronouns ꒱      </p>
+<p align="center">  ◠◠  ⠀⠀⠀⠀ =w=  ⠀⠀     ꒰ any pronouns ꒱      </p>
 <p align="center">౿ ⠀ no tonetags  ⠀⠀╰╮  ⠀⠀int freely ! </p>
 ꉂ ⠀   more on my ⠀  <a href="https://renwa.carrd.co">Carrd</a> ⠀ ⟢ </p>
 
