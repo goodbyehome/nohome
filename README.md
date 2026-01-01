@@ -10,7 +10,7 @@
 
   ‿‿‿
   
-### <p align="center">    ⠀⠀@  *wren ୨ৎ rena*  ⠀ </p>
+### <p align="center">    ⠀⠀@  *wren ⠀ </p>
 <p align="center"> 너 나처럼 되고 있지 않니,해준?
 <p align="center">   ⠀⠀sign⠀⠀ <a href="https://hiraethic.atabook.org/">ata</a>  ⠀⠀ ⠀ ⠀ ⠀(ᵔ⩊ᵔ) ⠀ ⠀ ⠀⠀     ⠀  ⠀  <a href="https://rentry.co/lovewren">rentry</a> ⠀ ｡｡｡  </p>
  
