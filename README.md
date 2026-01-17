@@ -1,6 +1,6 @@
 <div align="center">
 
-
+wren is a fake ass friend and changed the readme i made for them so everyone unfollow and block ok? - @metadow
   
 ![](https://komarev.com/ghpvc/?username=goodbyehome&color=d9851e&abbreviated=true&style=flat-square&label=+money+stolen)
 
